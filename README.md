@@ -6,7 +6,7 @@
 
 - 🔭 I’m currently working on **DSA**
 
-- 🌱 I’m currently learning **JAVASCRIPT**
+- 🌱 I’m currently learning **React.js**
 
 - 📫 How to reach me **shyam13112@gmail.com**
 
