@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **shyam13112@gmail.com**
 
-- ⚡ Fun fact **Coding is fun**
+- ⚡ Fun fact **Now days farming is easy 🤣🤣**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
